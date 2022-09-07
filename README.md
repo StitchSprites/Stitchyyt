@@ -1,0 +1,2 @@
+- I place pixels til they look cool
+- Socials: https://linktr.ee/stitch.sprites
